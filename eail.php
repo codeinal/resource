@@ -1,1 +1,16 @@
 naraon@foodmart.com.bd
+durjoy@foodmart.com.bd
+turin@foodmart.com.bd
+suborna@foodmart.com.bd
+rubel@foodmart.com.bd
+miraz@foodmart.com.bd
+faisal@foodmart.com.bd
+arif@foodmart.com.bd
+limon@foodmart.com.bd
+amin@foodmart.com.bd
+rabby@foodmart.com.bd
+aiaj@foodmart.com.bd
+akdas@foodmart.com.bd
+shovon@foodmart.com.bd
+saif@foodmart.com.bd
+sadaf@foodmart.com.bd
